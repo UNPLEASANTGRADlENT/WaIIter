@@ -4,5 +4,5 @@
 my lovely name is Wallter/Ace! 
 My pronouns are any, he/him preferred! 
 
-wallter doubles dniuf. i am him irl ![tumblr_ae1ac1414b20cfe3b2c50751b1b4f75f_81ed238e_75](https://github.com/WaIIter/WaIIter/assets/144538884/69f082a8-0664-4f67-8a44-b8997cfac74d) I bite sometimes sorry i just don't talk to ppl often :(
+wallter doubles may interact!.  ![tumblr_ae1ac1414b20cfe3b2c50751b1b4f75f_81ed238e_75](https://github.com/WaIIter/WaIIter/assets/144538884/69f082a8-0664-4f67-8a44-b8997cfac74d) I bite sometimes sorry i just don't talk to ppl often :(
 read my text.is for more info ![tumblr_206bb44b51130750e22074a32632f35a_325ecf97_75](https://github.com/WaIIter/WaIIter/assets/144538884/c036be4c-e2a6-4089-a25f-29152cc1e281)
